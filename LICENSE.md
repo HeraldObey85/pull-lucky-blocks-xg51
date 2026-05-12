@@ -1,4 +1,4 @@
-#  
+#  Experience pull lucky blocks like never before with professional Scripts for pull lucky blocks, the #1 Script. Includes one-hit kill and unlimited
 
 
 
